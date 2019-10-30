@@ -1,1 +1,1 @@
-i want die
+ok test
